@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **padaikrle13@gmail.com**
 
-- ⚡ Fun fact **i think i am loser**
+- ⚡ Fun fact **I am side Huslter**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
