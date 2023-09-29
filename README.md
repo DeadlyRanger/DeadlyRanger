@@ -21,4 +21,6 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=DeadlyRanger&icon=1&color=8)](https://visitcount.itsvg.in)
 
+[![An image of @deadlyranger3's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/deadlyranger3)](https://holopin.io/@deadlyranger3)
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
